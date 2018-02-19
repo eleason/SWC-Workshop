@@ -13,9 +13,7 @@ the British public were conned!
 
 ## Alternate View
 
-
 Nigel is a national hero ... Boris.
->>>>>>> af62cb2820b1d5e16b3db7e65f6250aeaf334488
 
 ## My theory
 
