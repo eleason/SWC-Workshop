@@ -12,7 +12,7 @@ We have seen in the papers of Johnson et al that Brexit was going to be a great 
 
 ## My theory
 
-From the existing economix climate we postulate...
+From the existing Brexit economic climate we postulate...
 
 ## Conclusion
 
