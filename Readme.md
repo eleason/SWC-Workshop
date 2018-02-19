@@ -13,7 +13,7 @@ the British public were conned!
 
 ## Alternate View
 
-Boris is the most awesome person ever and he is always right... Gove. 
+Nigel is a national hero ... Boris.
 
 ## My theory
 
