@@ -4,10 +4,12 @@
 ## Introduction
 
 This paper discusses...
+And looks at using git collaboratively to write a paper.
 
 ## Background
 
 We have seen in the papers of Johnson et al that Brexit was going to be a great success but reality...
+the British public were conned!
 
 ## Alternate View
 
@@ -15,7 +17,7 @@ Boris is the most awesome person ever and he is always right... Gove.
 
 ## My theory
 
-From the existing economic non-Brexit climate we postulate...
+From the existing Brexit economic climate we postulate...
 
 ## Conclusion
 
