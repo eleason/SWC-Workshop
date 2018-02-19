@@ -9,6 +9,10 @@ This paper discusses...
 
 We have seen in the papers of Johnson et al that Brexit was going to be a great success but reality...
 
+## Alternate View
+
+Boris is the most awesome person ever and he is always right... Gove. 
+
 ## My theory
 
 From the existing economic non-Brexit climate we postulate...
