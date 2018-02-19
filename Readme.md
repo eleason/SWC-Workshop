@@ -13,11 +13,11 @@ the British public were conned!
 
 ## Alternate View
 
-Boris is the most awesome person ever and he is always right... Gove. 
+Boris (the super awesome) is the most awesome person ever and he is always right... Gove. 
 
 ## My theory
 
-From the existing Brexit economic climate we postulate...
+From the existing Brexit economic climate we postulate... things are not going to go the way we think.
 
 ## Conclusion
 
