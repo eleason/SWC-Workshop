@@ -9,6 +9,7 @@ And looks at using git collaboratively to write a paper.
 ## Background
 
 We have seen in the papers of Johnson et al that Brexit was going to be a great success but reality...
+the British public were conned!
 
 ## My theory
 
