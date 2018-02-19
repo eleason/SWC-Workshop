@@ -4,6 +4,7 @@
 ## Introduction
 
 This paper discusses...
+And looks at using git collaboratively to write a paper.
 
 ## Background
 
